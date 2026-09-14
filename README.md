@@ -1,4 +1,4 @@
-# 🌷 Oii, eu sou a Ana Clara! Mas pode me chamar só de Ana.
+# 🌷 Oii, eu sou a Ana Clara! Mas pode me chamar só de Ana =)
 
 ### Analista de Dados • Business Intelligence • Engenharia de Dados
 
